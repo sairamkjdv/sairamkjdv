@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Cybersecurity projects, and innovative solutions for societal challenges.
 - 📫 You can reach me through sairamkollepara@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Achievement: I received a pre-placement offer as an Associate Security Analyst in Supraja Technologies, Vijayawada based on my performance in Cybersecurity!
+- ⚡ Achievement: I received a pre-placement offer as an Associate Security Analyst in Supraja Technologies, Vijayawada based on my performance in Cybersecurity Internship Program!
 
 <!---
 sairamkjdv/sairamkjdv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
